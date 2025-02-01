@@ -1,2 +1,2 @@
 # `**_I like tv remotes, idk why_**`
-## https://TVremote.github.io
+## https://TVremote1252.github.io
